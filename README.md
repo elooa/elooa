@@ -1,4 +1,3 @@
 🙂 Oi! Meu nome e Eloá
-📚 Gosto muito de ler 
-🐳 Quero ser Biologa Marinha
-💬 Tenho interrese em varias coisas como , artes no geral , piscologia , natureza etc..
+🤓 Esse e o meu perfil como estudante no Alura
+😴 E como uma otima filha de Hypnos eu não faço a minima ideia do que escrever aqui.
